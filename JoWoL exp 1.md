@@ -80,3 +80,6 @@
 
 # 11-06-2024 Wed
 - noticed jar 1's lid is loose
+
+# 11-14-2024 Thu
+- noticed the light out of jar 3 and 4 is one of red to yellow; while jar 2's light is dispersed, and jar 1 is unclear.

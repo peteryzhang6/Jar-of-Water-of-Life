@@ -5,11 +5,14 @@ aliases:
   - Water of Life
 tags:
   - experiment
+  - "#JoWoL"
 ---
-A water that brings eternal life to the ones who drink it.
+# Jar of Water of Life
+
+An experimental water that brings eternal life to the ones who drink it.
 # Theory
 **The Creation of Water of Life through fruits**
-- Put fruits of colors from the rainbow in such ratios that the unity of these colors is that of sunlight. 
+- Put fruits of colors from the rainbow in such ratios that the unity of these colors is that of sunlight or rainbow. 
 - Then put the glass jar that contains the fruits under sunlight 
 - Allow the jar to bath under the sun during the day
 	- and bath under the moonlight during night
