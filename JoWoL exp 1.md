@@ -20,11 +20,11 @@
 	- ash of cig for yin or death
 	- some air bubbles for yang or life
 	- the water used was not tap water but the old water made with oranges peels 
-- I did cut the fruits is to avoid the pain of separation felt by the cells of the fruits.
-- when will the water be ready to drink? IDK. I assume as the ezyme within starts to break down all the fruits completely and the water should shine a golden white color as Ra stats that 5D body survives on that of a nectar?
+- I did not cut the fruits is to avoid the pain of separation felt by the cells of the fruits.
+- when will the water be ready to drink? IDK. I assume as the enzyme within starts to break down all the fruits completely and the water should shine a golden white color as Ra stats that 5D body survives on that of a nectar?
 
 # 10-22-2024 Tue
-- i see there are air bubbles attached to the fruits, which i assume is the oxygen, unlike days before i only had peels, and no air formed on the peel, which is dead water or idk. So the fruits are alive and producing oxygen. Within the sealed jar, the oxygen will be compressed into the jar alone with vitimins of that of water, then as i drink it, the oxygen will be absorbed by my gut, allowing better oxygen absorbtion along with the lung.
+- i see there are air bubbles attached to the fruits, which i assume is the oxygen, unlike days before i only had peels, and no air formed on the peel, which is dead water or idk. So the fruits are alive and producing oxygen. Within the sealed jar, the oxygen will be compressed into the jar alone with vitamins of that of water, then as i drink it, the oxygen will be absorbed by my gut, allowing better oxygen absorption along with the lung.
 - 1747: the air pressure is building up and there are also bacterias forming of milky matter. the bacterias fall into the bottom. the lid of one jar is leaking water when i moved it and another is leaking air then i tightened it.
 - with the bacteria, I assume once the jar is complete, the water should reflect a golden color
 
@@ -83,3 +83,7 @@
 
 # 11-14-2024 Thu
 - noticed the light out of jar 3 and 4 is one of red to yellow; while jar 2's light is dispersed, and jar 1 is unclear.
+
+# 11-15-2024 Fri
+1020~: The lemon and orange fell to the bottom in jar 4 and the concentration of sunlight through the jar disappeared and produces a dim light like those of jar 1. I assume the concentration of light is due to the bottom of the jar being empty. Less light passing through can be it is being absorbed by entities within the jar.
+1455: about 1-2 hours ago, the lemon and orange in jar 4 rose

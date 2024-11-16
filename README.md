@@ -6,7 +6,6 @@
 An experiment with fruit, water, and sunlight to create a water to keep the body vitalized.
 
 [Theory of JoWoL](./Jar%20of%20Water%20of%20Life.md)
-# Related Repos
-- [The Law of One](https://github.com/peteryzhang6/The-Law-of-One)
-- [Jar of Water of Life](https://github.com/peteryzhang6/Jar-of-Water-of-Life)
-- [HAIxTech](https://github.com/peteryzhang6/HAIxTech)
+# Related Repo
+[The Law of One](https://github.com/peteryzhang6/The-Law-of-One)
+
